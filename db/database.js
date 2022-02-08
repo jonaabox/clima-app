@@ -1,0 +1,1 @@
+{"historial":["alaska, estados unidos","encarnación, itapúa, paraguay","ciudad de san vicente, provincia de buenos aires, argentina","são paulo, são paulo, brasil"]}
